@@ -1,2 +1,2 @@
-Read this shit
+Read this
 hello everyone!
